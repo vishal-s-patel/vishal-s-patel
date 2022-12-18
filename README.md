@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **angular, node.js**
 
-- 📫 How to reach me **vishalpatel7543@gmail.com**
+- 📫 How to reach me **vishalpatel1002@yahoo.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
